@@ -1,0 +1,2 @@
+# weblapforujratervezes.github.io
+gyakorlas
